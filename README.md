@@ -37,3 +37,7 @@ contemplate and stress over while in the idyllic state, but why wait until the o
 is ambition that has narrowed its sights on some mirage, says those more knowledgeable. To harness the base instead of 
 elevating the base is exploitation in the name of net-zero (the top profits). A counter-argument to the previous statement is 
 the base would not go anywhere if it were all elevated. 
+
+Maximization pushes meta-form, sourced from principle, into technical rigidity primed for the makers' purpose and possibly 
+with no proof or material support from those not part of the base setting. These processes are serious and cannot be close to 
+done without also failing. Results of completion for function in zones of performance and/or chaos. 
