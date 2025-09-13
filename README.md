@@ -26,4 +26,6 @@ better to phrase "policies" as a "lack of concert from policies not agreed on").
 solved by building more after or without breaking less, these problems can be measured by the arbitrary value 
 of metric used on a consistent basis for effective execution. But no, things break along the way and sometime after 
 that, new workers with improved metrics to address the problem instead of building on top of it, like grounds for 
-a gravestone. 
+a gravestone. It is more straightforward to think that people fight for fighting and seldom fight to work. The term 
+"fight" is confrontational, a few steps after that vicious, maybe backstabbing cutt-throats. But enough on those 
+corners of questionably rectifying action. 
