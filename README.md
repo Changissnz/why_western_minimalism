@@ -13,7 +13,7 @@ the functions specially designed into product (so it really is all for show). A 
 for clarity, between the elaborate multi-tiered constructs devised by human beings and the complexities 
 (with or without fruit) of social business. The social business does not have to yield great harvests 
 or bring about discernible change of any point on the spectrum of negative to positive. "It just is, 
-things just are, and let things be" are common defenses of the results of social business, and truthfully, 
+things just are, and let things be" are common defenses of the results of social business. And truthfully, 
 it is rare to find anyone that has the time of effort as well as the genuine passion to challenge these 
 defenses, based on collective notions of the norm and of adhering to the chain, without eventually 
 learning lessons on what makes a good subject rather than a good slave; slaves labor past their point 
