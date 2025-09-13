@@ -24,4 +24,6 @@ and the body swaying the mind into a tail rather than a head).
 Some frequent themes emerge, under the umbrella of social critique on the policies of minimalism (maybe it is 
 better to phrase "policies" as a "lack of concert from policies not agreed on"). If only all problems can be 
 solved by building more after or without breaking less, these problems can be measured by the arbitrary value 
-of metric used on a consistent basis for effective execution. But no, things break along the way. 
+of metric used on a consistent basis for effective execution. But no, things break along the way and sometime after 
+that, new workers with improved metrics to address the problem instead of building on top of it, like grounds for 
+a gravestone. 
