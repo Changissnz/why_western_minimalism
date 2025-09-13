@@ -19,4 +19,4 @@ defenses, based on collective notions of the norm and of adhering to the chain, 
 learning lessons on what makes a good subject rather than a good slave; slaves labor past their point 
 of comfort, past the point where their mind is an accurate receptor of stimuli and and where the mind 
 directs the body (when there is evidence every now and then of fluctuations of the heart moving the body 
-and the body swaying the mind into a tail rather than a head. 
+and the body swaying the mind into a tail rather than a head). 
