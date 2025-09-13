@@ -29,7 +29,7 @@ that, new workers with improved metrics to address the problem instead of buildi
 a gravestone. It is more straightforward to think that people fight for fighting and seldom fight to work. The term 
 "fight" is confrontational, a few steps after that are vicious, maybe backstabbing cutt-throats. But enough on those 
 corners of questionably rectifying action. There is the wondrous notion, "methodologies exist for virtually any aspiiration", 
-and then one can confuse the previous state of incapability with today's capability for the application of some mystery 
+and then one can confuse the previous state of incapability with today's capability for application towards some mystery 
 in the sea of machine-produced search results. Minimal states that are also of minimal influence through arrangements of 
 finance and trade have questions to tend to: if the capability is there for more to be owned and produced, but the need 
 is not... or... the need is there but the demand is the need is not for everyone... these nuances are somewhat silly to 
@@ -40,4 +40,6 @@ the base would not go anywhere if it were all elevated.
 
 Maximization pushes meta-form, sourced from principle, into technical rigidity primed for the makers' purpose and possibly 
 with no proof or material support from those not part of the base setting. These processes are serious and cannot be close to 
-done without also failing. Results of completion for function in zones of performance and/or chaos. 
+final without also failing. Results of completion for function in zones of performance and/or chaos. Must there be an endgame 
+from some of these minds, what difference does it make, and why must the possibility of the existence of an "endgame" be 
+important?
