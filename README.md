@@ -17,9 +17,11 @@ things just are, and let things be" are common defenses of the results of social
 it is rare to find anyone that has the time of effort as well as the genuine passion to challenge these 
 defenses, based on collective notions of the norm and of adhering to the chain, without eventually 
 learning lessons on what makes a good subject rather than a good slave; slaves labor past their point 
-of comfort, past the point where their mind is an accurate receptor of stimuli and and where their minds 
+of comfort, past the point where their mind is an accurate receptor of stimuli and where their minds 
 direct their bodies (when there is evidence every now and then of fluctuations of the heart moving the body 
 and the body swaying the mind into a tail rather than a head). 
 
 Some frequent themes emerge, under the umbrella of social critique on the policies of minimalism (maybe it is 
-better to phrase the policy as a "lack of concert from policies not agreed on". 
+better to phrase "policies" as a "lack of concert from policies not agreed on"). If only all problems can be 
+solved by building more after or without breaking less, these problems can be measured by the arbitrary value 
+of metric used on a consistent basis for effective execution. But no, things break along the way. 
