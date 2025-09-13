@@ -20,3 +20,6 @@ learning lessons on what makes a good subject rather than a good slave; slaves l
 of comfort, past the point where their mind is an accurate receptor of stimuli and and where their minds 
 direct their bodies (when there is evidence every now and then of fluctuations of the heart moving the body 
 and the body swaying the mind into a tail rather than a head). 
+
+Some frequent themes emerge, under the umbrella of social critique on the policies of minimalism (maybe it is 
+better to phrase the policy as a "lack of concert from policies not agreed on". 
