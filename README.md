@@ -28,4 +28,12 @@ of metric used on a consistent basis for effective execution. But no, things bre
 that, new workers with improved metrics to address the problem instead of building on top of it, like grounds for 
 a gravestone. It is more straightforward to think that people fight for fighting and seldom fight to work. The term 
 "fight" is confrontational, a few steps after that are vicious, maybe backstabbing cutt-throats. But enough on those 
-corners of questionably rectifying action. 
+corners of questionably rectifying action. There is the wondrous notion, "methodologies exist for virtually any aspiiration", 
+and then one can confuse the previous state of incapability with today's capability for the application of some mystery 
+in the sea of machine-produced search results. Minimal states that are also of minimal influence through arrangements of 
+finance and trade have questions to tend to: if the capability is there for more to be owned and produced, but the need 
+is not... or... the need is there but the demand is the need is not for everyone... these nuances are somewhat silly to 
+contemplate and stress over while in the idyllic state, but why wait until the oceans rise against? Another common issue 
+is ambition that has narrowed its sights on some mirage, says those more knowledgeable. To harness the base instead of 
+elevating the base is exploitation in the name of net-zero (the top profits). A counter-argument to the previous statement is 
+the base would not go anywhere if it were all elevated. 
