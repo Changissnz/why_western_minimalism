@@ -53,6 +53,6 @@ onto the abandoned structure. But they have will that can be recognized as indiv
 
 Western minimalism is demonstrated by the patterns of commerce committed to, streamlined and efficient and proven to be optimal 
 by expertise. These patterns are partnered with a spirit of vigilance to know what novelties to accept (is the novelty really so once 
-one discovers the source legacy. Some may confuse the aesthetics of today's internet ecosystem, as viewed on the consumer side 
+one discovers the source legacy?). Some may confuse the aesthetics of today's internet ecosystem, as viewed on the consumer side 
 of personal computers, as minimalist by default. There are different thought groups responsible for the appearance of simplicity 
 (if a computer has to add two numbers a million times in order to get the sum of the two numbers, that would be low efficiency).  
