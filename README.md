@@ -65,4 +65,5 @@ without in the advent the "whole" is slashed, but they will have difficulties co
 equal comparisons.
 
 Is minimalism restrictive in the manner of a human being "rationing" their will,being ultra-modest in the course of starvation, 
-adhering to templated nice-speak? It should not be. 
+adhering to templated nice-speak? It should not be. When these practices cave in, complications arise and the mental backtracking 
+a key ingredient for that wretched regret that could have yielded a better present. 
