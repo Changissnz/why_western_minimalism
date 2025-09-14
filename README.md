@@ -85,8 +85,8 @@ over the rest of the world spatially beneath them. How can one muster the pride 
 vertically-integrated thing, when any other one can swear (and turn out right) they will run out of spirit in the middle of their 
 boasting one of these days? 
 
-Wanted pecking orders become expectations of social competition. These relations, uni-directional, circumventive. When processes 
-are represented as a linear path held together by the spline of its checkpoints, there is a clear and surefire way due to perfect 
-information. Value the spline and pay no attention to what is in the middle, right. And some would immediately say that these linear 
-paths are minimalist, although they use the label to signify the degree of control over who reaches what checkpoints in this seemingly 
-simple path. 
+Wanted pecking orders become expectations of social competition. These relations, uni-directional, circumventive of scrutiny. When 
+processes are represented as a linear path held together by the spline of its checkpoints, there is a clear and surefire way due to 
+perfect information. Value the spline and pay no attention to what is in the middle, right. And some would immediately say that these 
+linear paths are minimalist, although they use the label to signify the degree of control over who reaches what checkpoints in this 
+seemingly simple path. 
