@@ -67,5 +67,5 @@ equal comparisons.
 Is minimalism restrictive in the manner of a human being "rationing" their will, being ultra-modest in the course of starvation, 
 adhering to templated nice-speak? It should not be. When these practices cave in, complications arise and the mental backtracking 
 a key ingredient for that wretched regret, produced from the realizations of insincerity, that could have yielded a better 
-present. But the minimalism was violated in these events as specific cases evidence drives of maximizing or may be as little as 
-simply winning in a comparative session.
+present. But the minimalism was violated in these events as specific cases evidence drives of maximizing, or may be drives for as 
+little as simply winning in a comparative session.
