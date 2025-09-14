@@ -72,3 +72,6 @@ little as simply winning in a comparative session. The trait of regeneration is 
 and it is not tangible in most cases and cannot be fully claimed by any one. When the meta-forms and rigid-forms come to light 
 and eventually wither, the core can be used to output similar novelties. A reverence for a permanence that does not go 
 haywire out of engineered complication. 
+
+Some confuse minimalism with liberal (outward, loosely structured, roaming) or conservatory (inward,tight-knit,immobile) ideology. 
+Minimalism is a way of life, first and foremost, and although it does not transcend petty commonists and political vitriol. 
