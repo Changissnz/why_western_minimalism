@@ -92,3 +92,11 @@ say that these linear paths are minimalist, although they use the label to signi
 checkpoints in this seemingly simple path: there is no other chance and complication is only possible after death. Minimalist forms 
 hide little of what occurs/occurred and what can be seen, and that is a trait of loathing from the maxes, sinks that accepted a lot 
 of mass to be of the upper extreme, when pars instead of endings are every time there is attempted resolution. 
+
+There do come times for the necessity to maximize effect without the need to maximize any pinnacle or construct. Would this be 
+considered maximalist? The mystics with their spirituality on one shoulder, gamblers with their notions of luck on the other shoulder, 
+what should one do after attending church? Running on the success of someone else's luck, a rather perplexing notion for the 
+philosophics of good being the final solution, of individual destiny, and of the forces kneeling down before one to use as they 
+please until something does not feel right, something snapped, and all the good ran out. With maximalist expectations that prime 
+people towards outlets as if they are sleepwalking, as an ending note, let us all ponder on why honest people make better servants 
+and why aggressors make good first-movers. 
