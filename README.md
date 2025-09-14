@@ -57,5 +57,5 @@ one discovers the source legacy?). Some may confuse the aesthetics of today's in
 of personal computers, as minimalist by default. There are different thought groups responsible for the appearance of simplicity 
 (if a computer has to add two numbers a million times in order to get the sum of the two numbers, that would be low efficiency). 
 Freedom of application... scaling up and deriving from are processes that are as impressive as initial reception of them, and 
-there is no guarantee of the impression having an incomprehensible mystery, the lack of comprehension almost entirely correlated 
-to its market value.
+there is no guarantee of the impression having an incomprehensible mystery, the lack of comprehension from the other side almost 
+entirely correlated to its market value.
