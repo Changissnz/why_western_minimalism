@@ -47,4 +47,6 @@ them into the will of erection by human beings? The functions bestowed entirely 
 for longevity, but they are built to be subordinate to permitted users. Dust accumulates on them, and they become breeding grounds 
 for life of a different scale from that of human beings, the nano-world. The nano-world has its own plans for what suits its 
 way of life, and the structures made by human beings host them, morphs in conjunction with their guests' appetites, guests that 
-will not leave until the feast is over. 
+will not leave until the feast is over. Many matters are abandoned by the heart or mind, but as long as there is material, there 
+will always come newcomers to adopt what is left. The newcomers are guests from the vantage point of an entitled dignity bestowed 
+onto the abandoned structure. 
