@@ -60,5 +60,7 @@ Freedom of application... scaling up and deriving from are processes that are as
 there is no guarantee of the impression having an incomprehensible mystery, the lack of comprehension from the other side almost 
 entirely correlated to its market value, as if everything were up for sale. Vertical integration is a somewhat inaccurate but 
 still applicable synonym for maximalization. When a vertically-integrated structure is slashed, new leadership is demanded and the 
-calls may be urgent. 
+calls may be urgent; this stands as a weakness to the multi-headedness of horizontal integration, as each is free to move ahead and 
+without in the advent the "whole" is slashed, but they will have difficulties compounding their capabilities due to their roughly 
+equal comparisons.
 
