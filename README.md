@@ -49,4 +49,10 @@ for life of a different scale from that of human beings, the nano-world. The nan
 way of life, and the structures made by human beings host them, morphs in conjunction with their guests' appetites, guests that 
 will not leave until the feast is over. Many matters are abandoned by the heart or mind, but as long as there is material, there 
 will always come newcomers to adopt what is left. The newcomers are guests from the vantage point of an entitled dignity bestowed 
-onto the abandoned structure. But they have a will that can be recognized as individuated challenge to the "whole". 
+onto the abandoned structure. But they have will that can be recognized as individuated challenges to the "whole". 
+
+Western minimalism is demonstrated by the patterns of commerce committed to, streamlined and efficient and proven to be optimal 
+by expertise. These patterns are partnered with a vigilance to know what novelties to accept (is the novelty really so once 
+one discovers the source legacy. Some may confuse the aesthetics of today's internet ecosystem, as viewed on the consumer side 
+of personal computers, as minimalist by default. There are different thought groups responsible for the appearance of simplicity 
+(if a computer has to add two numbers a million times in order to get the sum of the two numbers, that would be low efficiency).  
