@@ -44,4 +44,7 @@ final without also failing. Commitment for results of completion: functionalitie
 and/or chaos. Must there be an endgame from some of these minds, what difference does it make, and why must the possibility 
 of the existence of an "endgame" be important? Do structures of magnanimous scale tend to outlive the functions that brought 
 them into the will of erection by human beings? The functions bestowed entirely onto these structures could be maintained 
-for longevity, but they are built to be subordinate to permitted users. 
+for longevity, but they are built to be subordinate to permitted users. Dust accumulates on them, and they become breeding grounds 
+for life of a different scale from that of human beings, the nano-world. The nano-world has its own plans for what suits its 
+way of life, and the structures made by human beings host them, morphs in conjunction with their guests' appetites, guests that 
+will not leave until the feast is over. 
