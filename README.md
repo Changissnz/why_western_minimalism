@@ -74,4 +74,5 @@ and eventually wither, the core can be used to output similar novelties. A rever
 haywire out of engineered complication. 
 
 Some confuse minimalism with liberal (outward, loosely structured, roaming) or conservatory (inward,tight-knit,immobile) ideology. 
-Minimalism is a way of life, first and foremost, and although it does not transcend petty commonists and political vitriol. 
+Minimalism is a way of life, first and foremost. Although it does not transcend petty commonists and political vitriol, thinking 
+about this -ism as an independent -ism allows for something not stained by the drive. 
