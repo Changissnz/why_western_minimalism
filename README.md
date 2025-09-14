@@ -58,4 +58,7 @@ of personal computers, as minimalist by default. There are different thought gro
 (if a computer has to add two numbers a million times in order to get the sum of the two numbers, that would be low efficiency). 
 Freedom of application... scaling up and deriving from are processes that are as impressive as initial reception of them, and 
 there is no guarantee of the impression having an incomprehensible mystery, the lack of comprehension from the other side almost 
-entirely correlated to its market value, as if everything were up for sale.
+entirely correlated to its market value, as if everything were up for sale. Vertical integration is a somewhat inaccurate but 
+still applicable synonym for maximalization. When a vertically-integrated structure is slashed, new leadership is demanded and the 
+calls may be urgent. 
+
