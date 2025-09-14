@@ -78,3 +78,9 @@ Minimalism is a way of life, first and foremost. Although it does not transcend 
 about this -ism as an independent -ism allows for something not stained by the drive. How much can minimalist practice take in before 
 the super-structures produced from the massive success of its core just "randomly" get abandoned, aww the pretty goddess type sold out, 
 pilfered, and abandoned? A question best left to the ration-alists, guided by that good information from their astute quantitots.
+Maximizing these brilliant simplicities... imagine the lives that could be shared... after the complete construction of the 
+super-structure. And then... from symbol of concentrated effort to a normalization of correlating certain classes and professions
+as exclusive members of that super-structure... where is the love, they asketh... as they stay perched, the angelic beings, watching 
+over the rest of the world spatially beneath them. How can one muster the pride to see and speak nothing but marvels about some 
+vertically-integrated thing, when any one can swear (and turn out right) they will run out of spirit in the middle of their boasting 
+one of these days? 
