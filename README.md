@@ -43,5 +43,5 @@ with no proof or material support from those not part of the base setting. These
 final without also failing. Commitment for results of completion: functionalities and appearances in zones of performance 
 and/or chaos. Must there be an endgame from some of these minds, what difference does it make, and why must the possibility 
 of the existence of an "endgame" be important? Do structures of magnanimous scale tend to outlive the functions that brought 
-them into the will of erefection by human beings? The functions bestowed entirely onto these structures could be maintained 
+them into the will of erection by human beings? The functions bestowed entirely onto these structures could be maintained 
 for longevity, but they are built to be subordinate to permitted users. 
