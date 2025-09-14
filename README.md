@@ -75,4 +75,5 @@ haywire out of engineered complication.
 
 Some confuse minimalism with liberal (outward, loosely structured, roaming) or conservatory (inward,tight-knit,immobile) ideology. 
 Minimalism is a way of life, first and foremost. Although it does not transcend petty commonists and political vitriol, thinking 
-about this -ism as an independent -ism allows for something not stained by the drive. 
+about this -ism as an independent -ism allows for something not stained by the drive. How much can minimalist practice take in before 
+the super-structures produced from the massive success of its core, is a question best left to the ration-alists. 
