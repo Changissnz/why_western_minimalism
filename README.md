@@ -64,3 +64,5 @@ calls may be urgent; this stands as a weakness to the multi-headedness of horizo
 without in the advent the "whole" is slashed, but they will have difficulties compounding their capabilities due to their roughly 
 equal comparisons.
 
+Is minimalism restrictive in the manner of a human being "rationing" their will,being ultra-modest in the course of starvation, 
+adhering to templated nice-speak? It should not be. 
