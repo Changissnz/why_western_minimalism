@@ -68,4 +68,6 @@ Is minimalism restrictive in the manner of a human being "rationing" their will,
 adhering to templated nice-speak? It should not be. When these practices cave in, complications arise and the mental backtracking 
 a key ingredient for that wretched regret, produced from the realizations of insincerity, that could have yielded a better 
 present. But the minimalism was violated in these events as specific cases evidence drives of maximizing, or may be drives for as 
-little as simply winning in a comparative session.
+little as simply winning in a comparative session. The trait of regeneration is a prime aspect of minimalism. There is a core (kernel) 
+and it is not tangible in most cases and cannot be fully claimed by any one. When the meta-forms and rigid-forms come to light 
+and eventually wither, the core can be used to output similar novelties. 
