@@ -98,5 +98,5 @@ considered maximalist? The mystics with their spirituality on one shoulder, gamb
 what should one do after attending church? Running on the success of someone else's luck, a rather perplexing notion for the 
 philosophics of good being the final solution, of individual destiny, and of the forces kneeling down before one to use as they 
 please until something does not feel right, something snapped, and all the good ran out. As an ending note, with maximalist expectations 
-that prime people towards outlets as if they are sleepwalking, willingly of course, as an ending note, let us all ponder on why honest 
-people make better servants and why aggressors make good first-movers. 
+that prime people towards outlets as if they are sleepwalking, willingly of course, let us all ponder on why honest people make better 
+servants and why aggressors make good first-movers. 
