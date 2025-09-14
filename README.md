@@ -70,5 +70,5 @@ a key ingredient for that wretched regret, produced from the realizations of ins
 present. But the minimalism was violated in these events as specific cases evidence drives of maximizing, or may be drives for as 
 little as simply winning in a comparative session. The trait of regeneration is a prime aspect of minimalism. There is a core (kernel) 
 and it is not tangible in most cases and cannot be fully claimed by any one. When the meta-forms and rigid-forms come to light 
-and eventually wither, the core can be used to output similar novelties. There is a reverence for a permanence that does not go 
+and eventually wither, the core can be used to output similar novelties. A reverence for a permanence that does not go 
 haywire out of engineered complication. 
