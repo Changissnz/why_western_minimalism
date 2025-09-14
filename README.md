@@ -64,7 +64,7 @@ calls may be urgent; this stands as a weakness to the multi-headedness of horizo
 without in the advent the "whole" is slashed, but they will have difficulties compounding their capabilities due to their roughly 
 equal comparisons.
 
-Is minimalism restrictive in the manner of a human being "rationing" their will,being ultra-modest in the course of starvation, 
+Is minimalism restrictive in the manner of a human being "rationing" their will, being ultra-modest in the course of starvation, 
 adhering to templated nice-speak? It should not be. When these practices cave in, complications arise and the mental backtracking 
 a key ingredient for that wretched regret, produced from the realizations of insincerity, that could have yielded a better 
 present. But the minimalism was violated in these events as specific cases evidence drives of maximizing or may be as little as 
