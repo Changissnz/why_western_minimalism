@@ -89,6 +89,6 @@ Wanted pecking orders become expectations of social competition. These relations
 a process is represented as a linear path held together by the spline of its checkpoints, there is a clear and surefire way due to 
 perfect information. Value the spline and pay no attention to what is in every middle, right. And some would immediately say that these 
 linear paths are minimalist, although they use the label to signify the degree of control over who reaches what checkpoints in this 
-seemingly simple path. Minimalist forms hide little of what occurs/occurred and what can be seen, and that is a trait of loathing 
-from the maxes, sinks that accepted a lot of mass to be of the upper extreme, when pars instead of endings are every time there is 
-attempted resolution. 
+seemingly simple path: there is no other chance and complication is only possible after death. Minimalist forms hide little of what 
+occurs/occurred and what can be seen, and that is a trait of loathing from the maxes, sinks that accepted a lot of mass to be of the 
+upper extreme, when pars instead of endings are every time there is attempted resolution. 
