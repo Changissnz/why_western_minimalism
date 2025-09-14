@@ -84,3 +84,7 @@ as exclusive members of that super-structure... where is the love, they asketh..
 over the rest of the world spatially beneath them. How can one muster the pride to see and speak nothing but marvels about some 
 vertically-integrated thing, when any other one can swear (and turn out right) they will run out of spirit in the middle of their 
 boasting one of these days? 
+
+Wanted pecking orders become expectations of social competition. These relations, uni-directional, circumventive. When processes 
+are represented as a linear path held together by the spline of its checkpoints, there is a clear and surefire way due to perfect 
+information. 
