@@ -17,7 +17,7 @@ things just are, and let things be" are common defenses of the results of social
 it is rare to find anyone that has the time of effort as well as the genuine passion to challenge these 
 defenses, based on collective notions of the norm and of adhering to the chain, without eventually 
 learning lessons on what makes a good subject rather than a good slave; slaves labor past their point 
-of comfort, past the point where their mind is an accurate receptor of stimuli and where their minds 
+of comfort, past the point where their minds are accurate receptors of stimuli and where their minds 
 direct their bodies (when there is evidence every now and then of fluctuations of the heart moving the body 
 and the body swaying the mind into a tail rather than a head). 
 
@@ -40,6 +40,6 @@ the base would not go anywhere if it were all elevated.
 
 Maximization pushes meta-form, sourced from principle, into technical rigidity primed for the makers' purpose and possibly 
 with no proof or material support from those not part of the base setting. These processes are serious and cannot be close to 
-final without also failing. Results of completion for function in zones of performance and/or chaos. Must there be an endgame 
-from some of these minds, what difference does it make, and why must the possibility of the existence of an "endgame" be 
-important?
+final without also failing. Commitment for results of completion: functionalities and appearances in zones of performance 
+and/or chaos. Must there be an endgame from some of these minds, what difference does it make, and why must the possibility 
+of the existence of an "endgame" be important?
