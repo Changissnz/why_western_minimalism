@@ -82,5 +82,5 @@ Maximizing these brilliant simplicities... imagine the lives that could be share
 super-structure. And then... from symbol of concentrated effort to a normalization of correlating certain classes and professions
 as exclusive members of that super-structure... where is the love, they asketh... as they stay perched, the angelic beings, watching 
 over the rest of the world spatially beneath them. How can one muster the pride to see and speak nothing but marvels about some 
-vertically-integrated thing, when any one can swear (and turn out right) they will run out of spirit in the middle of their boasting 
-one of these days? 
+vertically-integrated thing, when any other one can swear (and turn out right) they will run out of spirit in the middle of their 
+boasting one of these days? 
