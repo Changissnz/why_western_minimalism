@@ -77,4 +77,4 @@ Some confuse minimalism with liberal (outward, loosely structured, roaming) or c
 Minimalism is a way of life, first and foremost. Although it does not transcend petty commonists and political vitriol, thinking 
 about this -ism as an independent -ism allows for something not stained by the drive. How much can minimalist practice take in before 
 the super-structures produced from the massive success of its core just "randomly" get abandoned, aww the pretty goddess type sold out, 
-pilfered, and abandoned? A question best left to the ration-alists with their astute quantitots.
+pilfered, and abandoned? A question best left to the ration-alists, guided by that good information from their astute quantitots.
